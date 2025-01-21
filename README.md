@@ -9,7 +9,7 @@
 
 - 📫 How to reach me **asyikillahi121@gmail.com**
 
-- ⚡ Fun fact **I dont like eat sardine.**
+- ⚡ Fun fact **I dont like eat sardine and tuna too.**
 
 <h3 align="left">Connect with me:</h3>
 <p align="left">
